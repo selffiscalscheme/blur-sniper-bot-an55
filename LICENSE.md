@@ -1,4 +1,4 @@
-# 
+# advanced NFT Scanner for blur sniper bot | take-profit & multi-wallet-support is the best blur sniper bot, featuring take-profit and multi-wallet-support. Fast, smart, and
 
 
 
